@@ -1,0 +1,2 @@
+# funnycode
+quá đẹp
